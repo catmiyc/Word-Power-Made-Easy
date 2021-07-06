@@ -1,2 +1,2 @@
 # Word Power Made Easy
- 词根学习
+ 日拱一足 工不唐捐
