@@ -1,2 +1,2 @@
 # Word Power Made Easy
- 日拱一足 工不唐捐
+ 日拱一足 功不唐捐
